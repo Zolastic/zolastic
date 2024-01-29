@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **honhattienlul@gmail.com**
 
-- ⚡ Fun fact **I love learning!**
+- ⚡ Fun fact **I love to laugh!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
